@@ -1,0 +1,1 @@
+in a forest the monkey used to resides on jamun tree, which was on the bank of a river where the crocodile and his wife also resided
